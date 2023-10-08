@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Scott Michael Hamlin 
 - 👀 I’m interested in the financial market 
-- 🌱 I’m currently learning about insurance, stocks and bitcoin...
+- 🌱 I’m currently learning about insurance, stocks and bitcoin, believe my assets may be compromised.
 - 💞️ I’m looking to collaborate on my venture out of blue collar employment to better my family.
 - 📫 you may reach me at scotthamlin1990@gmail.com or at 1-226-268-5709
 
